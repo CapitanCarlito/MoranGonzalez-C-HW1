@@ -33,8 +33,8 @@ Its so weird. There are no records of him before 1992. There is no history about
 
 ## Credits
 First of all I wanna thank gawd for all the blessings,
-My momma,
-And all those mothayouknowwhaters who said I couldn't!
+my momma,
+and all those mothayouknowwhaters who said I couldn't!
 
 ## License
 MIT
