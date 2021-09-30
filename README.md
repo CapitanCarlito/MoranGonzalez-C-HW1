@@ -18,21 +18,21 @@ Although I have an appreciation for bartending and mixology those disciplines ar
 I have a few hobbies that I enjoy in my free time which include cocktail creation and playing with flavors, graphic design and making anime edits, skateboarding and functional body training, and lastly all forms of art!
 
 Bio #2:
-Hi, you may refer to me as Shadow Carlos. I'm here to act as a secondary user and contributor to the homework assignment Carlos has to submit to class. Our team name is Balanced Daiquiri and I will show you how to make one. The tools you will be needing to make this drink are preferably a shaker set with a hawthorne strainer but mason jar or protein shaker will do just fine. Next you will also need a jigger or other measuring device to pour the exact amounts of ingredients into your shaker. Your ingredient list will be needing are fresh limes for juicing, rich syrup (2:1 sugar:water), a lighter style rum, and ice to chill and dilute your beverage. Your specs to follow are listed below:
+Hi, you may refer to me as Shadow Carlos. I'm here to act as a secondary user and contributor to the homework assignment Carlos has to submit to class. Our team name is Balanced Daiquiri and I will show you how to make one. The tools you will be needing to make this drink are preferably a shaker set with a Hawthorne strainer but a mason jar or protein shaker will do just fine. Next, you will also need a jigger or other measuring device to pour the exact amounts of ingredients into your shaker. Your ingredient list will be needing are fresh limes for juicing, rich syrup (2:1 sugar: water), a lighter style rum, and ice to chill and dilute your beverage. Your specs to follow are listed below:
 
-    .25oz Rich syrup
-    .75oz Lime Juice
-    2oz Light rum
+ .25oz Rich syrup
+ .75oz Lime Juice
+ 2oz Light rum
 
 Shake the drink for 9 seconds for maximum chill, dilution, and aeration
 
 DO NOT REACH FOR A BLENDER!!!!!!
 
 ## History
-Its so weird. There are no records of him before 1992. There is no history about him at all before then its like he came out of nowhere!
+It's so weird. There are no records of him before 1992. There is no history about him at all before then it's like he came out of nowhere!
 
 ## Credits
-First of all I wanna thank gawd for all the blessings,
+First of all, I wanna thank gawd for all the blessings,
 my momma,
 and all those mothayouknowwhaters who said I couldn't!
 
