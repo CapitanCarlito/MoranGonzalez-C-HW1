@@ -1,9 +1,7 @@
-# {1:Team Balanced Daiquiri}
-TODO: Write a project description
+# Team Balanced Daiquiri
+
 ## Contributing
-1. Carlos Bio
+1. Shadow Bio
 
 ## License
 MIT
-]]></content>
-  <tabTrigger>readme</tabTrigger>
