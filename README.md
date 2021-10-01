@@ -32,9 +32,7 @@ DO NOT REACH FOR A BLENDER!!!!!!
 Its so weird. There are no records of him before 1992. There is no history about him at all before then its like he came out of nowhere!
 
 ## Credits
-First of all I wanna thank gawd for all the blessings,
-My momma,
-And all those mothayouknowwhaters who said I couldn't!
+First of all I wanna thank gawd for all the blessings, my momma, and all those mothayouknowwhaters who said I couldn't!
 
 ## License
 MIT
